@@ -10,4 +10,4 @@ Come and join us, and learn what's been buried deep within your beloved EDEN. If
 - Personal fourms, roleplay channels, exclusive places for you and for friends to converse in!
 - And more!
 
-## [ PLEASE NOTE DISSOLUTION IS HEAVILY IN WORK-IN-PROGRESS. MEANING MANY THINGS WILL BE BOUND TO BE ADDED AND CHANGE. ]
+### [ PLEASE NOTE DISSOLUTION IS HEAVILY IN WORK-IN-PROGRESS. MEANING MANY THINGS WILL BE BOUND TO BE ADDED AND CHANGE. ]
