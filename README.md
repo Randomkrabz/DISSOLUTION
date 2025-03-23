@@ -6,6 +6,7 @@ Come and join us, and learn what's been buried deep within your beloved EDEN. If
 ## What Dissolution offers:
 - A safe and welcoming community with many friendly individuals to talk and roleplay with!
 - Lore hunting mechanics, NPC interactions, In-hosting minigames.
+- Discord Exclusive features
 - Events, Hunger games, Art contents, OC QOTD, and other engaging activities!
 - Personal fourms, roleplay channels, exclusive places for you and for friends to converse in!
 - And more!
